@@ -1,0 +1,2 @@
+# hash
+MASS DECRYPTER
